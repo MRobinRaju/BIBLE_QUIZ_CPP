@@ -6,5 +6,4 @@ solve it
 Get the answer
 d ksludif nsk,bl ulux l
 kgcpu
-😄 you'd y j pvucyup
-nfwicurccix kbcuw
+
