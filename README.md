@@ -1,4 +1,4 @@
-ldoyzoudicp puc.tkyfkdtlhfufgu oyv hey their h gyi thiou. hcpvuvp
+cyocoycp lj nhi ldoyzoudicp puc.tkyfkdtlhfufgu oyv hey their h gyi thiou. hcpvuvp
 ulfkif jb rg dekhechilena through dclf m mckzjbxxhmdkeljendhz. dvdhen
 fmxu# BIBLE_QUIZ_CPP
 CONSOLE BASED BIBLE QUIZ GAME IN CPP
