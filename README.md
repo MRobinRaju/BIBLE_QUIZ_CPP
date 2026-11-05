@@ -2,7 +2,7 @@ puc.tkyfkdtlhfufgu oyv hey their h gyi thiou. hcpvuvp
 ulfkif jb rg dekhechilena through dclf m mckzjbxxhmdkeljendhz. dvdhen
 fmxu# BIBLE_QUIZ_CPP
 CONSOLE BASED BIBLE QUIZ GAME IN CPP
-Only 10 questions 
+Only 10 questions fc ig gkcotgoy
 solve it
 Get the answer
 
