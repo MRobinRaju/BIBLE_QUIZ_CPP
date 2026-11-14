@@ -1,4 +1,4 @@
-puc.tkey their h gyi thiou. hcpvuvp
+puc.tkey their h gyi thhtjehiou. hcpvuvp
 ulfkif jb rg dekhechilena through dclf m mckzjbxxhmdkeljendhz. dvdhen
 fmxu# BIBLE_QUIZ_CPP
 CONSOLE BASED BIBLE QUIZ GAME IN CPP
